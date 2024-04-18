@@ -19,5 +19,5 @@ it already that I tend to attempt everything on my own and have a hard time gagi
 reach out for help. Mostly wanted to write this down as a reminder of what happend and to stort of go 
 through the motions of showing what was going on so that I can understand where I can improve for the future.
 If you are the recruter reading this I want to take the time to thank you again if I haven't thanked you already in the email
-for taking the time to read this and give me a chance. Hope the recruiting process goes smoothly for you can the team. 
+for taking the time to read this and give me a chance. Hope the recruiting process goes smoothly for you and the team. 
 Hope you have a good rest of your day or night.
